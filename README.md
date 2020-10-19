@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+Je suis **Stanislas** 🐱‍👤
+join stein13-web ⛩ on github 😺
+je fais du **DEV full-stack** 😎
+ou par ✉ mouchet.sta@gmail.com
