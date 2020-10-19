@@ -16,6 +16,6 @@ Here are some ideas to get you started:
 -->
 
 Je suis **Stanislas** 🐱‍👤
-join stein13-web ⛩ on github 😺
+on peut me joindre sur stein13-web ⛩ on github 😺
 je fais du **DEV full-stack** 😎
-ou par ✉ mouchet.sta@gmail.com
+ou par ✉ mouchet.stan@gmail.com
